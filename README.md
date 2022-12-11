@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Hidrogenoescuela
+- 👀 I’m interested in Flags 
+- 🌱 I’m currently learning Flags
+- 💞️ I’m looking to collaborate on Black pepople
+- 📫 How to reach me with big cocks
+-
